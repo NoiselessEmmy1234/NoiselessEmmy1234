@@ -18,6 +18,7 @@
                   Commonly found outside of Bakery / MCYT area
              Normally cosplaying MCYTs, but also have other cosplays
            If you like my style, I'll make a pony for you (if you want)
+                      Taking inspo is alright IF you ask me
                   Almost always offt or afk, C+H is ALWAYS enc!
            If you're in a similar fandom, don't be scared to talk to me
                                  W2I, obviously!
